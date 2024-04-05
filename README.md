@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @DavidOgebe
+- 👀 I’m interested in Tech Talent development and project development
+- 💞️ I’m looking to collaborate on a new product I am working on
+- 📫 How to reach me : contact on W/A +234 703 773 4027
+- 😄 Pronouns: He/Him/Mr
+- ⚡ Fun fact: I cannot tip toe, my legs crack when I walk
